@@ -2,7 +2,7 @@
 - 👀 I’m interested in software.
 - 🌱 I’m currently learning HTML.
 - 💞️ I’m looking to collaborate on @arenrewy(scratch)
-- 📫 How to reach me agorumcegi@gmail.com
+- 📫 You can reach me via email at agorumcegi@gmail.com
 - 😄 Pronouns:empty
 - ⚡ Fun fact:empty
 
